@@ -1,2 +1,3 @@
 # constitutia-romaniei-2015
-nu doar filozofând trebuie să contribuim
+-nu doar filozofând trebuie să contribuim
+-moise ori orcare alți "legiuitori" n-au fcut/adus legi pentru că ei aveau nevoie de ele...
