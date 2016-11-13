@@ -21,11 +21,11 @@ Legile nu se mai votează cu toptanul, astfel strecurându-se în listă și mă
 
 Sprijinul dat unei legi poate fi retras în orice moment. Oricine are drept și loc să crească, să învețe și să se răzgândească în deciziile/voturile și măsurile pe care le sprijină
 
-Acest sistem are rostul principal de a oferi fiecărui individ posibilitatea de a alege în ce direcție vrea să meargă ca parte a unității. In același timp garantează că nimeni nu poate lua cu forța resursele/votul altei persoane pentru a sprijini proiecte la care respectiva persoană se opune.
+Acest sistem are rostul principal de a oferi fiecărui individ posibilitatea de A ALEGE în ce direcție vrea să meargă ca parte a unității. In același timp garantează că(prin lege) nimeni nu poate fi forțat să aleagă împotriva propriei dorințe/conștiițe.
 
 
 
-Ce nu rezolvă acest sitem( ce mai e nevoie să fie rezolvat):
+Ce NU rezolvă acest sitem( ce mai e nevoie să fie rezolvat):
 
 Lăcomul si prostul încă au drept de vot egal cu cel ale unui întelept ori cel darnic. Nu toată lumea va alege proiecte pentru bine le întregii nații.
 
