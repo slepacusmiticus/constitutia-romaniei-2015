@@ -27,6 +27,8 @@ Acest sistem are rostul principal de a oferi fiecărui individ posibilitatea de 
 
 Ce NU rezolvă acest sitem( ce mai e nevoie să fie rezolvat):
 
+O problemă e populismul de turmă care poate să tragă în jos. de exemplu la scoală dacă lași alegerea/democratia pe seama elevilor(in sistemul actual) mulți profesorii vor fi aleși dintre cei slabi, care te lasă să copiezi. De aceea trebuie menținut un mecanism prin care este asigurată îmbunătătirea învatământuluiși educatie(în scoală) în acelasi timp luându-se în seamă doleanțele participanților, prin car ee stimulată creativitatea și explorarea necunoscutului/inovatia și nu lenea... pentru ca dumul pe care consumi cea mai puțină energie e acela de a nu face/învata nimic. treaba scolii ori administratiei statale e să facă mai interesantă modalitatea de învătarea/munca/inovatia decât statul pe canapea la tv.
+
 Lăcomul si prostul încă au drept de vot egal cu cel ale unui întelept ori cel darnic. Nu toată lumea va alege proiecte pentru bine le întregii nații.
 
 Răsplata pentru contribuția fiecăruia nu e proporțională cu participarea sa.
